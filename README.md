@@ -4,4 +4,7 @@ Ill spam my notes here so stay tuned as well as I'll be posting a course journal
 
 
 Added Table of contents
+
+
+
 Use Search tab on the top left for whatever topic your looking to.
