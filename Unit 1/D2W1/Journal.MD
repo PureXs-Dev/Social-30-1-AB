@@ -1,0 +1,100 @@
+Cool so we learn 3 new things, (not new but you get what I mean)
+
+
+Economic Structures             1
+Political Structures            2
+Informal Social Structures      3
+
+1 = Management of money & what to do with it (let people choose ex. private hospital or let the governement run it ex. public healthcare)
+2 = Management of power and how much should 2 parties have, those parties being the govrnment and the individual (more on this later)
+3 = What arn't laws but are good markers of what type of person you are ( getting good grades, being kind to neighbors, volunteer etc.)
+
+lets talk about 1 for a minute
+like number 2 it has a spectrum
+(we learned about 2 spectrum in a previous lesson linked below)
+https://github.com/PureXs-Dev/Social-30-1-AB/tree/main/Unit%201/D1W1
+
+The far left of the spectrum is called "communism"
+The far right is called "Capitalism"
+Lets remeber these
+////// THIS SPECTRUM IS SUPER SIMPLIFIED AND THERE ARE OTHER PREFIXES TO THESE IDEOLOGIES////////
+
+Communism as in the root word for community, shares the idea that society should work for the collective
+and is rooted in that, people would work hard in order that everyone is provided for and no one suffers.
+/////////// Communism is a stateless/ classless/ and moneyless////////////
+
+This is based in wealth distribution ( taking money from the rich and giving to the poor, direclty or indirectly,[government hand outs or social services])
+This is so that everyone has at least the basics (Education, Healthcare etc.)
+
+Capitalisim as in the root word for capital, shares that the trade of capital allows for individuals to prosper.
+Its the idea that the more you give to society the more you get from society (more specifically capital)
+
+
+If you provide a service like as a doctor and you provide healthcare.
+
+In a capitalist society, you would work in a private hospital with its rules and regulations. The people (individuals) pay money out of pocket to
+recieve healthcare.
+
+In a socialist society, you work in a public hospital, regulated by the governement. The government decides your worth and pays you accordingly to provide healthcare to who ever
+needs it.
+
+
+Alright we've gone for a long time just one last thing.
+
+we learn 2 things
+
+Democratic 
+Non Democratic
+
+In a Democratic society, the people challenge the government if they disagree ( vote them out, come the next election)
+In a Non Democratic society, the government sets out what the people should do and punish them if a group or individual steps out of line (or rewards them for doing what they 
+are told)
+
+
+
+Now lets smash these things together 
+when we put them together we get 4 ideologies 
+
+
+Facism 
+Democratic capitalism
+Democratic Socialism
+Communism
+
+
+Facism is Non Democratic Capitalism                                         9
+Communism is Communism (ideas and economic)                                 8
+Democratic socialism is democratic communism ( with the addition of money)  7
+Democratic Capitalism is Democratic Capitalism (duh)                        6
+
+//////////////////////////////////////////////EXTRA NOTES/////////////////////////////////////////////////////////
+
+Facism - you get a choice what to do with your money but not with your political opinion
+Communism - you have your money and political opinion managed
+Democratic Socialism - you have your money manged but not your opinion (who should lead)
+Democratic Capitalism - you have choice with your money and your opinion for who should lead (power)
+
+Good job guys!
+
+
+
+───────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+─██████████████─██████──██████─████████████████───██████████████─████████──████████────────────────████████████───██████████████─██████──██████─██████─
+─██░░░░░░░░░░██─██░░██──██░░██─██░░░░░░░░░░░░██───██░░░░░░░░░░██─██░░░░██──██░░░░██────────────────██░░░░░░░░████─██░░░░░░░░░░██─██░░██──██░░██─██░░██─
+─██░░██████░░██─██░░██──██░░██─██░░████████░░██───██░░██████████─████░░██──██░░████────────────────██░░████░░░░██─██░░██████████─██░░██──██░░██─██░░██─
+─██░░██──██░░██─██░░██──██░░██─██░░██────██░░██───██░░██───────────██░░░░██░░░░██──────────────────██░░██──██░░██─██░░██─────────██░░██──██░░██─██░░██─
+─██░░██████░░██─██░░██──██░░██─██░░████████░░██───██░░██████████───████░░░░░░████───██████████████─██░░██──██░░██─██░░██████████─██░░██──██░░██─██░░██─
+─██░░░░░░░░░░██─██░░██──██░░██─██░░░░░░░░░░░░██───██░░░░░░░░░░██─────██░░░░░░██─────██░░░░░░░░░░██─██░░██──██░░██─██░░░░░░░░░░██─██░░██──██░░██─██░░██─
+─██░░██████████─██░░██──██░░██─██░░██████░░████───██░░██████████───████░░░░░░████───██████████████─██░░██──██░░██─██░░██████████─██░░██──██░░██─██████─
+─██░░██─────────██░░██──██░░██─██░░██──██░░██─────██░░██───────────██░░░░██░░░░██──────────────────██░░██──██░░██─██░░██─────────██░░░░██░░░░██────────
+─██░░██─────────██░░██████░░██─██░░██──██░░██████─██░░██████████─████░░██──██░░████────────────────██░░████░░░░██─██░░██████████─████░░░░░░████─██████─
+─██░░██─────────██░░░░░░░░░░██─██░░██──██░░░░░░██─██░░░░░░░░░░██─██░░░░██──██░░░░██────────────────██░░░░░░░░████─██░░░░░░░░░░██───████░░████───██░░██─
+─██████─────────██████████████─██████──██████████─██████████████─████████──████████────────────────████████████───██████████████─────██████─────██████─
+───────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+
+
+
+
+
+
+
